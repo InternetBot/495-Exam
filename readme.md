@@ -1,1 +1,1 @@
-Today is Finals!
+Today is Finals! and christmas in 2 weeks
